@@ -1,1 +1,0 @@
-# jacobrgardner.github.io
